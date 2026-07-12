@@ -1,0 +1,1 @@
+# machimogu-sns-assets
